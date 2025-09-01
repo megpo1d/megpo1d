@@ -52,5 +52,6 @@
 𝗢𝗧𝗛𝗘𝗥 𝗦𝗧𝗨𝗙𝗙
 
 - I don't try on my PT skins I just throw stuff together and hope it looks atleast a bit decent :sob:
+- **Main PT skins: Mejiro Mcqueen (Umamusume), Aya Shameimaru (Touhou), Saori Sato (Schoolgirl Supervisor), Acme Iku (Vocaloid/UTAU/Maidloid idfk same damn thing), Kokona Haruka (Yan Sim), Oka Ruto (Yan Sim), Mai Waifu (Yan Sim), BUNKER BUSTER GUMI (Masa Works/Vocaloid), GUMI (Vocaloid). SOMETIMES Shiromi Torayishi (Yan Sim) or Kagamine Rin (Vocaloid)**
 - CREDITS FOR DIVIDERS: @kodaswrld on tumblr
 - I'm really shy, so I might be dry at first, but I'll warm up after a while!!
