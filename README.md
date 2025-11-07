@@ -52,7 +52,7 @@
 𝗢𝗧𝗛𝗘𝗥 𝗦𝗧𝗨𝗙𝗙
 
 - I don't try on my PT skins I just throw stuff together and hope it looks atleast a bit decent :sob:
-- **Main PT skins: Acme Iku (UTAU/Maidloid), Kokona Haruka (Yan Sim), Info-chan (Yan Sim), Mai Waifu (Yan Sim).**
+- **Main PT skins: Acme Iku (UTAU/Maidloid), Kokona Haruka (Yan Sim), Info-chan (Yan Sim), Mai Waifu (Yan Sim). <-- CHECK STRAWPAGE FOR SKINS!!**
 - **I mainly sit above docks or in the pjsk/vocaloid area**
 - CREDITS FOR DIVIDERS: @kodaswrld on tumblr
 - I'm really shy, so I might be dry at first, but I'll warm up after a while!!
