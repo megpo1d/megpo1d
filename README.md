@@ -17,19 +17,19 @@
 
 ╭──────────.★..─╮
 
-| ♡ **Vocaloid**
+┇ ♡ **Vocaloid**
 
-| ♡ **Umamusume**
+┇ ♡ **Umamusume**
 
-| ♡ **Yandere Simulator**
+┇ ♡ **Yandere Simulator**
 
-| ♡ **Schoolgirl Supervisor**
+┇ ♡ **Schoolgirl Supervisor**
 
-| ♡ **Needy Streamer Overload**
+┇ ♡ **Needy Streamer Overload**
 
-| ♡ **Touhou**
+┇ ♡ **Touhou**
 
-| ♡ **Doki Doki Literature Club**
+┇ ♡ **Doki Doki Literature Club**
 
 ╰─..★.──────────╯
 
@@ -37,15 +37,15 @@
 
 ╭──────────.★..─╮
 
-| × **Racists**
+┇ × **Racists**
 
-| × **Pedophiles/Zoophiles**
+┇ × **Pedophiles/Zoophiles**
 
-| × **Yandev & Noway supporters**
+┇ × **Yandev & Noway supporters**
 
-| × **Under 15**
+┇ × **Under 15**
 
-| × **IRL gore likers**
+┇ × **IRL gore likers/fetishizers omfg dni**
 
 ╰─..★.──────────╯
 <img src="https://64.media.tumblr.com/ed78ddd6dbe3ff442c8f1ab69701824a/65964bf138f6b00c-80/s2048x3072/f2722a1c988743b5c6178fd6205644853a181ba2.pnj">
