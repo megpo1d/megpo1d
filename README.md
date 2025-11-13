@@ -3,7 +3,7 @@
 
 . .╭┈ ᐟᐟ☆🕷️🕸️ *intro* .ᐟ 
 
-. .┇ ◟ **names: Ame / Oka / Yuri**
+. .┇ ◟ **names: Ame / Oka**
 
 . .┇ ◟ **age: Undisclosed (CLOSE PEOPLE ONLY SORRY..)**
 
